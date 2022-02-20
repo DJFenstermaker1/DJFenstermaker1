@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DJFenstermaker1
+- 👀 I’m interested in Video Games and Game Design
+- 🌱 I’m currently learning to become a Game Designer
+- 💞️ I’m looking for info and to learn from other people's experiences who work in the Game Design field.
+- 📫 How to reach me is by email at Fenstermakerd2020@gmail.com
